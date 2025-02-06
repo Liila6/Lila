@@ -3,6 +3,6 @@ La maison bohèmiène est un site internet de meubles et de décorations style b
 
 # La maison bohèmiene:
 
-* La maison bohèmiene sera faire de votre maison un vrai havre de paix,du sol au plafond vous pourrez trouver votre bonheur dans notre large gamme avec une qualité supérieur avec des prix qui vous feront chavirés.*
+* La maison bohèmiene sera faire de votre maison un vrai havre de paix,du sol au plafond vous pourrez trouver votre bonheur dans notre large gamme avec une qualité supérieur avec des prix attractifs.*
 
-## **Venez découvrir nos inspirations pour raffraichir votre lieu de vie!**
+## **Découvrez nos inspirations pour raffraichir votre lieu de vie!!**
